@@ -12,4 +12,4 @@ Ultilizo esse espaço para minha organização e compartilhamento dos meus proje
 
 00001135745493SP@al.educacao.sp.gov.br
 
-@thalia091
+![image](https://media.tenor.com/zQV1EHnRyVMAAAAi/stitch-love.gif)
